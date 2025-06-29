@@ -1,0 +1,1 @@
+# Veri-G-rselle-tirme
